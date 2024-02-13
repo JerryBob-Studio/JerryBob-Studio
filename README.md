@@ -1,6 +1,5 @@
 code i guess lol
 
-16 year old 2D / 3D artist and programmer for 6+ years
 
 Animations and stuff:
   https://www.youtube.com/@JerryBobStudio
