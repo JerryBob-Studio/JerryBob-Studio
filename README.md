@@ -1,6 +1,6 @@
 code i guess lol
 
-Self-taught 2D / 3D artist and programmer since the age of 10
+16 year old 2D / 3D artist and programmer for 6+ years
 
 Animations and stuff:
   https://www.youtube.com/@JerryBobStudio
